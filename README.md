@@ -1,1 +1,1 @@
-# qaz703187681-github.io
+# qaz703187681.github.io
